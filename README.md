@@ -2,4 +2,8 @@
 Participation Repository
 
 Exercise 1 wew
-My favorite candy is Asdf
+My favorite candy is Asdftijereroitritrjeoioi 
+
+
+ggg
+ok
